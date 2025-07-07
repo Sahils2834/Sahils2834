@@ -44,7 +44,7 @@
 
 ## 📬 Let's Connect
 
-- 💼 [LinkedIn](https://linkedin.com/in/sahils2834)  
+- 💼 [LinkedIn](www.linkedin.com/in/sahil-s-b26b35279)  
 - 💻 [GitHub](https://github.com/Sahils2834)  
 - 📧 Email: *sahils2834@gmail.com*
 
